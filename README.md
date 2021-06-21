@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ᓚᘏᗢृृु
+- 👀 I’m interested in ...none of your business 
+- 🌱 I’m currently learning ... how to eradicate the other 49% of the BWP group
+- 💞️ I’m looking to collaborate on ...nothing, i dont work with others
+- 📫 How to reach me ...Discord. ᓚᘏᗢृृु#6306 - my tag
